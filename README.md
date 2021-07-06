@@ -1,1 +1,1 @@
-Estou gostando do curso, porem acho que está muito acelerado, deveriamos treinar mais algumas coisas
+Testando
